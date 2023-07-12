@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **patricktechfreak@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFn7qLciVc/y0Vkr3GF4Qew9u9sUbP34g/edit?utm_content=DAFn7qLciVc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFn7qLciVc/y0Vkr3GF4Qew9u9sUbP34g/edit?utm_content=DAFn7qLciVc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 My RESUME [https://www.canva.com/design/DAFn7qLciVc/y0Vkr3GF4Qew9u9sUbP34g/edit?utm_content=DAFn7qLciVc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFn7qLciVc/y0Vkr3GF4Qew9u9sUbP34g/edit?utm_content=DAFn7qLciVc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 - ⚡ Fun fact **Without technology everything might be possible but nothing can be feasible**
 
